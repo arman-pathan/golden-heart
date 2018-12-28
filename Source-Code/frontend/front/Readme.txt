@@ -1,1 +1,0 @@
-Homepage for GoldenHeart.com
